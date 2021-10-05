@@ -1,4 +1,4 @@
-<p>- 👋 Hi, I’m @TMK5
+- 👋 Hi, I’m @TMK5
 - 👀 I’m interested in coding
 - 🌱 I’m currently learning IT
 - 📫 How to reach me? via Email: thiaa.moner1@gmail.com || insta: @tmk5_99
